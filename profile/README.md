@@ -30,4 +30,4 @@ modern digital products across five core disciplines.
 
 ---
 
-*Registered in Sweden · F-skatt · VAT registered*
+*Registered in Sweden · Stockholm*
